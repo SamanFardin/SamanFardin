@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SamanFardin
+- ِ🧑🏽‍🎓🏫Yasooj university Computer engineering student
+- 🧐🖥️ curious about computers
+- 😄🧑🏽‍💻Intrested in network and security
